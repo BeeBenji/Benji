@@ -1,3 +1,0 @@
-Benji
-=====
-Love You Benji
